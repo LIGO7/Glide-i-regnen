@@ -7,4 +7,8 @@ Et script der checker om det regner eller tordner og om man er i bevægelse. Hvi
 I må selv ændre i det så meget i vil. Intet credit skal gives og alt det der. 
 I skal bare ikke sælge det og sige det er jer der har lavet det.
 
+Showcase :
+Jeg har sat tiden ned og chancen til 1 og 1.
+https://streamable.com/vxrq33
+
 😊
