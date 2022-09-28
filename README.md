@@ -10,5 +10,5 @@ I skal bare ikke sælge det og sige det er jer der har lavet det.
 Showcase :
 Jeg har sat tiden ned og chancen til 1 og 1.
 https://streamable.com/vxrq33
-
+Så det er ikke ligesom scriptet på jeres server
 😊
